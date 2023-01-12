@@ -1,0 +1,1 @@
+Many of the images in this folder can be selected.
